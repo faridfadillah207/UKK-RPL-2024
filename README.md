@@ -1,2 +1,4 @@
 # UKK-RPL-2024
-gallery foto
+Farid Fadillah 
+Kelas XII PPLG 
+no peserta 12221302
